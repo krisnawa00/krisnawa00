@@ -1,4 +1,4 @@
-I am GOATED on foenem
+Put these foolish ambitions to rest
 
 <!---
 krisnawa00/krisnawa00 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
